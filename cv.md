@@ -37,3 +37,11 @@ Kundendienstleiter
 - 06.2008 – 11.2009 Columbus - Koffee Fachgechäft
 Aleppo Syrien
 Verkäufer
+
+# Schulbildung
+- 2001 – 2005 allgemeine Hochschulreife (Syrisches Abitur), Literaturzweig
+
+# Studium
+- 2006 – 2012 Studium der Fakultät für Literatur und Geisteswissenschaften, Fachbereich:
+Arabische Sprache, an der Universität Aleppo.
+Abschluss: Lizenziatengrad in der arabischen Sprache und Literatur
